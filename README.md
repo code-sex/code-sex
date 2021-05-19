@@ -1,4 +1,4 @@
-### Hi there 👋 well cod-sex here!
+### Hi there 👋 well code-sex here!
 
 Here are some ideas to get you started:
 
